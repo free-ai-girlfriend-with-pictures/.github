@@ -1,6 +1,6 @@
 <div align="center">
 
-<a href="https://chubby-gf.com/freeaigirlfriendwithpictures">
+<a href="https://chubby-gf.com/freeaigirlfriendwith-pictures">
   <img src="https://raw.githubusercontent.com/free-ai-girlfriend-with-pictures/.github/main/freeaigirlfriendwithpictures.jpg" alt="Free AI Girlfriend With Pictures - Unfiltered Visuals" width="100%" />
 </a>
 
@@ -9,7 +9,7 @@
 <h3>Because you shouldn't just read the story. You should see her.</h3>
 
 <p>
-  <a href="https://chubby-gf.com/freeaigirlfriendwithpictures">
+  <a href="https://chubby-gf.com/freeaigirlfriendwith-pictures">
     <img src="https://img.shields.io/badge/≡%20START%20GENERATING%20≡-ff1493?style=for-the-badge&labelColor=0d0d0d" alt="Start Generating" height="45" />
   </a>
 </p>
@@ -129,7 +129,7 @@ You know the scene you want to play. You know the image you want to see. This ti
 
 <div align="center">
 
-<a href="https://chubby-gf.com/freeaigirlfriendwithpictures">
+<a href="https://chubby-gf.com/freeaigirlfriendwith-pictures">
   <img src="https://img.shields.io/badge/≡%20START%20GENERATING%20NOW%20≡-ff1493?style=for-the-badge&labelColor=0d0d0d" alt="Start Generating Now" height="50" />
 </a>
 
